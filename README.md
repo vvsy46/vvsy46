@@ -1,6 +1,7 @@
 ## Hi there 👋
 > 박승연 (Park Seungyeon)  
-> Linkedin: https://www.linkedin.com/in/seungyeon-park
+> Linkedin: https://www.linkedin.com/in/seungyeon-park  
+> contact: tmddus0129@naver.com / psydangi99@gmail.com
 > 
 <br>  
 
